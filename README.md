@@ -64,4 +64,4 @@ I am an **AI/CV Associate Engineer at iKITES Technologies** with a strong intere
 ## 🌐 Connect With Me:
 📫 **Email:** chaudharyavi4336@gmail.com  
 🔗 **LinkedIn:** [Sumit-Profile](https://linkedin.com/in/sumit-profile)  
-💻 **Portfolio:** [https://sumit-profile.github.io/](https://sumit-profile.github.io/)  
+💻 **Portfolio:** [https://sumit-profile.github.io/]([https://sumit-profile.github.io/](https://sites.google.com/view/sumit4336/home?authuser=0))  
